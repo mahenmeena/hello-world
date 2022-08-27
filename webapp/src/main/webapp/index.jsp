@@ -1,2 +1,2 @@
-<h1>JAY HO VEER BAJRANGI !!! </h1>
+<h1>Jay HIND !!! </h1>
 
